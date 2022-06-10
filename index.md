@@ -7,3 +7,7 @@ Hey welcome to my website.
 SO yeah have a good day! or night! or weekend! or death or love, or whatever 
 
 Love you all!!!
+
+
+COPY THIS AND PASTE INTO YOUR BROWSER!!!
+https://meaknoname.github.io/MeakNoNames/
